@@ -15,8 +15,8 @@ Here are some ideas to get you started:
 -->
 ⋘ 𝑃𝑙𝑒𝑎𝑠𝑒 𝑤𝑎𝑖𝑡...⋙
 
- </div> <div align="center">         ⋘ 𝑙𝑜𝑎𝑑𝑖𝑛𝑔 𝑑𝑎𝑡𝑎...⋙
- </div> <div align="right">⋘ ...100% Complete ⋙
+ </div> <div align="center">         ⋘ 𝑙𝑜𝑎𝑑𝑖𝑛𝑔 𝑑𝑎𝑡𝑎...⋙‎ 
+ </div> <div align="center"> ‎‎‎‎‎‎‎⋘ ...100% Complete ⋙‎
 
 ˏ⸉ˋ‿̩͙‿̩̩̥͙̽‿̩͙‿̩̥̩‿̩̩̥͙̽‿̩͙ˊ⸊ˎ
        
