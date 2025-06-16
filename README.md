@@ -13,10 +13,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-⋘ 𝑃𝑙𝑒𝑎𝑠𝑒 𝑤𝑎𝑖𝑡...⋙
+ </div> <div align="center"> ⋘ 𝑃𝑙𝑒𝑎𝑠𝑒 𝑤𝑎𝑖𝑡...⋙
 
-‎‎‎‎ </div>  ⋘ 𝑙𝑜𝑎𝑑𝑖𝑛𝑔 𝑑𝑎𝑡𝑎...⋙‎ ‎‎‎‎ </div>
- ‎‎‎‎ </div>  ‎‎‎‎‎‎‎⋘ ...100% Complete ⋙‎
+ </div> <div align="center">  ⋘ 𝑙𝑜𝑎𝑑𝑖𝑛𝑔 𝑑𝑎𝑡𝑎...⋙‎ ‎‎‎‎ </div>
+ </div> <div align="center"> ‎‎‎‎‎‎‎⋘ ...100% Complete ⋙‎
 
  ‎‎‎‎ </div> <div align="center">   ˏ⸉ˋ‿̩͙‿̩̩̥͙̽‿̩͙‿̩̥̩‿̩̩̥͙̽‿̩͙ˊ⸊ˎ
        
