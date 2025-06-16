@@ -18,7 +18,7 @@ Here are some ideas to get you started:
  ‎‎‎‎ </div> <div align="center">            ‎     ⋘ 𝑙𝑜𝑎𝑑𝑖𝑛𝑔 𝑑𝑎𝑡𝑎...⋙‎ 
  ‎‎‎‎ </div>  ‎‎‎‎‎‎‎⋘ ...100% Complete ⋙‎
 
-ˏ⸉ˋ‿̩͙‿̩̩̥͙̽‿̩͙‿̩̥̩‿̩̩̥͙̽‿̩͙ˊ⸊ˎ
+ ‎‎‎‎ </div> <div align="center">   ˏ⸉ˋ‿̩͙‿̩̩̥͙̽‿̩͙‿̩̥̩‿̩̩̥͙̽‿̩͙ˊ⸊ˎ
        
  </div> <div align="center">    Springtrap
            </div> <div align="center">       Adult, bodily 21
