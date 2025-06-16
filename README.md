@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+⋘ 𝑃𝑙𝑒𝑎𝑠𝑒 𝑤𝑎𝑖𝑡...⋙
+
+          ⋘ 𝑙𝑜𝑎𝑑𝑖𝑛𝑔 𝑑𝑎𝑡𝑎...⋙
+
+ˏ⸉ˋ‿̩͙‿̩̩̥͙̽‿̩͙‿̩̥̩‿̩̩̥͙̽‿̩͙ˊ⸊ˎ
+       
+               Springtrap
+                  Adult, bodily 21
+He/Him
