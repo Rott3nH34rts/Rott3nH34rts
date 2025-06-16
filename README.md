@@ -21,4 +21,4 @@ Here are some ideas to get you started:
        
  </div> <div align="center">    Springtrap
            </div> <div align="center">       Adult, bodily 21
-He/Him
+</div> <div align="center"> He/Him
