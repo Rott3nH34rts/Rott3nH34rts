@@ -19,6 +19,6 @@ Here are some ideas to get you started:
 
 ˏ⸉ˋ‿̩͙‿̩̩̥͙̽‿̩͙‿̩̥̩‿̩̩̥͙̽‿̩͙ˊ⸊ˎ
        
-               Springtrap
-                  Adult, bodily 21
+ </div> <div align="center">    Springtrap
+           </div> <div align="center">       Adult, bodily 21
 He/Him
